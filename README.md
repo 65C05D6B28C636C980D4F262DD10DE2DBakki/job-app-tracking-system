@@ -5,8 +5,8 @@ https://drive.google.com/file/d/1awMjz8KhhYIeG4mjVmxzcBP7a5cbRRVW/view?usp=drive
 
 
 VIDEO DEMONSRATION
-https://drive.google.com/file/d/1bV4L0b-5yxgJ61ziI87ScJGXs0TCWojW/view?usp=drivesdk
 
+https://photos.app.goo.gl/YinR8oSG7MNfg1gq7
 
 Team lead -https://trailblazer.me/id/biiibscmathematicsreg5104
 member1  -https://trailblazer.me/id/aiibscmaths5102
